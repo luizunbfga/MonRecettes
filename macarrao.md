@@ -4,7 +4,3 @@
 2. 50g de estrato de tomate
 3. 5g de alho tostato
 
-# Macarrão é bom de mais
-
-1. 100g de macarrão
-2. 500ml de estrato de tomate
